@@ -15,9 +15,8 @@
 
 - 📫 How to reach me **aarke2002tripathi@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1R6l_kwBSyxqXkkPdrW4hHKFdgM9vetaT/view?usp=sharing](https://drive.google.com/file/d/1R6l_kwBSyxqXkkPdrW4hHKFdgM9vetaT/view?usp=sharing)
-
-- ⚡ Fun fact **I created a game called Duck Hunter! When I'm not busy coding, you might find me strategizing my next high score—digital ducks beware! 🦆**
+- 📄 Know about my experiences [https://shorturl.at/t46ag]
+  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

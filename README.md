@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **aarke2002tripathi@gmail.com**
 
-- 📄 Know about my experiences [https://shorturl.at/t46ag]
+- 📄 Know about my experiences: [Aarke_Resume](https://drive.google.com/file/d/1DGmi900_ZSvcYztPXRLzV2cy65JBT9YL/view?usp=sharing)
   
 
 <h3 align="left">Connect with me:</h3>
